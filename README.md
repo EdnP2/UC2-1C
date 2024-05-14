@@ -16,3 +16,14 @@ Atividade 1: Trello
 
 
 
+# Lucas Kiemle Medeiros
+
+## TRELLO
+
+[Trello SWOT](https://trello.com/invite/b/GOPJrfkO/ATTI2ca610ab0eaa71630a77b3826df980ee2CC97D02/analise-swot-amazon)
+
+[A fazer, fazendo, feito, metas](https://trello.com/invite/b/q2nuDqAD/ATTIe55e1207fe61d1d1a1af928641386da4E2C1E0A7/trabalho)
+
+## CANVA
+
+[Linguagem GO](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
