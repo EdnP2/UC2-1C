@@ -27,3 +27,11 @@ Atividade 1: Trello
 ## CANVA
 
 [Linguagem GO](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+## MIRO
+
+[Model Canva](https://miro.com/app/board/uXjVKGYj7OY=/?share_link_id=731053317740)
+
+## Google Docs
+
+[Emprego](https://docs.google.com/document/d/1AxdaSKViSiQOmxPksQjeH5GX5qfBzUJMIJbeqRhOle8/edit?usp=sharing)
