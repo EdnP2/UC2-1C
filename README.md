@@ -35,3 +35,7 @@ Atividade 1: Trello
 ## Google Docs
 
 [Emprego](https://docs.google.com/document/d/1AxdaSKViSiQOmxPksQjeH5GX5qfBzUJMIJbeqRhOle8/edit?usp=sharing)
+
+## Google Planilhas
+
+[Gantt](https://docs.google.com/spreadsheets/d/15r5nhLpCM5i1E_Zci2s4DUmjR404hpoycgde-5hmax4/edit?usp=sharing)
